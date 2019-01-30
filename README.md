@@ -1,3 +1,3 @@
 # newcomer
 I am Sayantan Chatterjee.
-I have graduated from University Of Calcutta.
+My first job is as an IT Developer in Gladiatech Consultancy Services.
